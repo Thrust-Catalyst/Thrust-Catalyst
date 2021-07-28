@@ -9,7 +9,7 @@
 🐒 Get Social With Us
  - Discord- https://discord.gg/edAwUDsFP6
 
- - Twitter- https://twitter.com/home
+ - Twitter- https://twitter.com/Thrust_Catalyst
 
  - Youtube- https://www.youtube.com/channel/UCU3bWcdR-unu8gikPx0PbkA
  
